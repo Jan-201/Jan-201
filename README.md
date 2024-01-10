@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Jan-201
+- 👀 I’m interested in building
+- 🌱 I’m currently learning everything I should
+- 💞️ I’m looking to collaborate on common interests we might have
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I am always curious about things, serves me right
